@@ -1,3 +1,3 @@
 # Learning
 
-## under Progression
+## Under Progression
